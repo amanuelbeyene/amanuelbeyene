@@ -2,7 +2,7 @@
 - 👀 I’m interested in Problem Solving and Coding.
 - 🌱 I’m currently learning Computer Science.
 - 💞️ I’m looking to collaborate on Problem Solving.
-- 📫 How to reach me ...
+- 📫 You can reach me on Telegram.
 - 😄 Pronouns: He
 - ⚡ Fun fact: 1+1=11(it's String 😂😁).
 
